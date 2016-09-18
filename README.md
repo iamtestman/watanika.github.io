@@ -1,4 +1,4 @@
 # watanika.github.io
 
-## /(^o^)\
+## \(^o^)/
 おためし
